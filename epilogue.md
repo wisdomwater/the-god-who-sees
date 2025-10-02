@@ -1,4 +1,4 @@
-## Epilogue: Still on the Way
+## Epilogue
 
 I am still on the journey. The wilderness has not magically opened into a promised land, but it no longer feels so lonely. Along the way I have found companions I never expected—mystics, teachers, voices from traditions I once considered forbidden. They have taught me honesty, humility, and the unassuming beauty of the outsider.
 
