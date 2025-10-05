@@ -1,10 +1,7 @@
-We all carry an ache. We long for fulfillment, hoping that love, success, or recognition will finally satisfy the emptiness inside. Yet no matter what the world offers, the longing remains.
+When the church you loved no longer saw you, when your belonging slipped away, when faith itself began to crack—where did you turn?
 
-What if that ache is not a flaw to fix, but a clue to follow? What if the deepest desire of the human heart is simply this: to be seen and to be loved?
+The God Who Sees follows the ancient story of Hagar, the Egyptian servant cast out into the wilderness, and reimagines it through the eyes of those who have known church hurt and spiritual exile.
 
-In *The God Who Sees: Remembering What Was Never Lost*, we are invited on a journey through the wilderness of invisibility—when we feel overlooked, forgotten, or unseen—into the healing presence of the One who sees us as we truly are. Along the way, we learn to see ourselves with gentleness, to see others with compassion, and to glimpse our place in the larger divine story.
+Through poetic reflections and gentle blessings, this book invites you to find hope in the wilderness—to believe that God’s presence is not confined to the walls of religion, but moves freely among the outcasts, the overlooked, and the weary.
 
-This is not a book of quick answers or easy formulas. It is an invitation to pause, to remember, and to rest in the truth that has always been true:
-
-*You are seen. You are loved. You are never alone.*
-
+If you have ever felt unseen, unheard, or unworthy in the name of faith, may these pages remind you: the God who met Hagar by a spring of water still meets those who wander today.

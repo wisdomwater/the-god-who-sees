@@ -1,4 +1,4 @@
-## Introduction
+# Introduction
 
 I grew up in church. Some of my earliest memories are of summer retreats at youth camp, where every evening ended with an altar call. The last night was always the most charged—set apart for those who felt called into full-time ministry. Those who came forward received a special prayer, a blessing, a charge.
 

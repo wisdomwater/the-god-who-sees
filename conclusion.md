@@ -1,4 +1,4 @@
-## Chapter 10: The God Who Sees
+# Conclusion: The God Who Sees
 
 Hagar’s story began in obscurity. She was introduced not by name but by role: *an Egyptian maidservant.* She had no voice in the household, no agency in her own life. She was used to solve someone else’s problem, and when jealousy arose, she was driven out. Twice she was cast away, twice she wandered with too little, twice she wept in the wilderness.
 
